@@ -1,5 +1,7 @@
 # El origen de las Victimas de Elecentro
 
+![imagen de las Victimas de Elecentro con su tutor y su profesor](../images/nosotros.jpg)
+
 ## Nace un problema...
 
 En la ciudad de San Juan de Los Morros se encuentra las terribles instalaciones de Elecentro, lo que motivo a una tradición anual que consiste en la quema de las instalaciones de Elecentro, lo que ha hecho que, un grupo importante de personas se interesen en visitar esta ciudad, por la peculiar tradición que se realiza en la ciudad ya mencionada. En medio de este escenario, nace el principal problema: La falta de centros de recreación y hospedaje en San Juan de los Morros. Debido a esto un grupo de visionarios, talentosos e ingeniosos jóvenes se han unido para crear una solución a esta problemática, pero dándole un toque fresco e innovador, es por todo esto que nace el grupo de Las Víctimas de Elecentro, para llevar a cabo y concretar sus ideas.
